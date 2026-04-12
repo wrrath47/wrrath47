@@ -1,4 +1,4 @@
-<img width="734" height="244" alt="image" src="https://github.com/user-attachments/assets/2f4a3c3a-0390-43d1-b8a5-71c8de464ef6" />
+<img width="1200" height="500" alt="image" src="https://i.pinimg.com/originals/84/6d/cb/846dcbf1dc154bd198496ad9275b025a.gif" />
 
 tg @wrrathh
-пишите по делу
+пиcать только по делу.
